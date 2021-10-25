@@ -16,3 +16,6 @@ It will not only usefull for the flood prone areas and also drought prone areas 
                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        
                                                                                                                                                                 
                                                                                 # Thank you #
+this video will explain about the project 
+please click on this link
+ https://youtu.be/ULR1Kw5XrGk                                                                          
